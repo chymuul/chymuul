@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @chymuul
-- 👀 I’m interested in contents both written, audio and visual contents, community building andinnovations
+- 👀 I’m interested in contents both written, audio and visual contents, community building and innovation.
 - 🌱 I’m currently learning product management.
 - 📫 How to reach me chinecheremmartha0@gmail.com
 
